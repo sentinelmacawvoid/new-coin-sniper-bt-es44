@@ -1,4 +1,4 @@
-# 
+# top sandwich attack bot scripts is the best sandwich attack bot scripts with flash-loan-arbitrage and blockchain-scanning. Safe, reliable, and optimized for MEV, sniper, and
 
 
 
